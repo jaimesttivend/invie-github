@@ -1,2 +1,2 @@
 # invie-github
-best air guitars!
+best air guitars! by @platzi
